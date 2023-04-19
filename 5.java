@@ -1,0 +1,1 @@
+Latest news in town
